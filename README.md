@@ -25,3 +25,6 @@ This is my first repository
 |19/07/2024|Er.Kanwardeep Kalra| Madam taught us about corporate society and its different view points |
 |19/07/2024| Mr.Jaswinder Singh | Sir made our day with the most engaging session of science and made learning fun |
 |19/07/2024| **Departmental** | **Visit** |
+
+
+![IMG-20240725-WA0015](https://github.com/user-attachments/assets/3945ec3a-8a04-438a-a985-f46349f73922)
